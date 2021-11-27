@@ -14,5 +14,6 @@
 
 **4번_1**</br>
 ![ezgif com-gif-maker4번](https://user-images.githubusercontent.com/93849755/143671189-81999687-c31a-4dbc-9704-76db29f6f8de.gif)
-</br>**4번_2**
+
+**4번_2**</br>
 ![ezgif com-gif-maker 4번_1](https://user-images.githubusercontent.com/93849755/143671192-36bb4d27-6fb1-41f5-9d39-f15048220b9f.gif)
