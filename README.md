@@ -9,7 +9,8 @@
 
 
 **3번**</br>
-![ezgif com-gif-maker3번](https://user-images.githubusercontent.com/93849755/143671138-0f1cdb76-6ef4-4d85-9fa1-cc66147328d5.gif)
+![ezgif com-gif-maker](https://user-images.githubusercontent.com/93849755/143673312-3f50a5b2-20e1-43b6-b9aa-d3e705d49188.gif)
+
 
 
 **4번_1**</br>
